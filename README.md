@@ -1,3 +1,3 @@
 - 👋  @angelbladex o  Luis García en la vida real
-- 👀 la curiosidad me intersa
+- 👀 La curiosidad es insubordinación en su forma más pura. -- Vladimir Nabokov 
 - 🌱 La vida es un aprendizaje continuo
